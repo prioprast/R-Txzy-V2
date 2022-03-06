@@ -6,6 +6,7 @@ BIG THANKS TO
 • My ortu
 • Nurutomo
 • Xteam
+• Lord Prio
 • AlyaaXzy 
 • BOTCAHX
 • Zeks
